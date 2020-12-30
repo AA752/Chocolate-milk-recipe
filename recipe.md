@@ -1,0 +1,1 @@
+Pour milk and choco powder in a glass, put in an oven for 30 seconds, stir it and Voila!
